@@ -1,0 +1,1 @@
+# StockPicking-Lakshmi
